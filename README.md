@@ -1,5 +1,5 @@
 
-<img src="https://64.media.tumblr.com/073bb33c79e2950888f517fe3fff22ce/4353f7fc3075f9ef-df/s500x750/66adcb53e6a5c80d6f80d64f3f818f07a44ac5f0.gifv" width="420" >
+<img src="https://64.media.tumblr.com/073bb33c79e2950888f517fe3fff22ce/4353f7fc3075f9ef-df/s500x750/66adcb53e6a5c80d6f80d64f3f818f07a44ac5f0.gif" width="420" >
 
 This is for PonyTown
 
