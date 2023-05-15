@@ -5,7 +5,7 @@ This is for PonyTown
 
 **Do NOT Interact**
 
-Ponies, Kins, & Lovers of Diavolo [JJBA]
+Ponies, Kins, & Lovers of Diavolo [JJBA] & Enrico Pucci [JJBA]
 
 Anyone under 16
 
@@ -15,4 +15,4 @@ If you claim to have TT/TD/DNT or any other variant
 
 Mental illness/disorder fakers (Psychosis, DID, etc.)
 
-I gatekeep Trish Una [JJBA] & Enrico Pucci [JJBA]
+I gatekeep Trish Una [JJBA] 
