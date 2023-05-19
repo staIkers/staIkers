@@ -1,8 +1,7 @@
 
 <p align="center">
 <img src="https://cdn.discordapp.com/attachments/1093986782124707960/1107795184521064478/tumblr_073bb33c79e2950888f517fe3fff22ce_919961ea_540.gif" width="420" >
-<p align="center">
-**Do NOT Interact**
+<h1 align="center">Do NOT Interact</h1>
 <p align="center">
 Ponies, Kins, & Lovers of Diavolo [JJBA] & Enrico Pucci [JJBA]
 <p align="center">
