@@ -15,4 +15,4 @@ If you claim to have TT/TD/DNT or any other variant
 
 Mental illness/disorder fakers (Psychosis, DID, etc.)
 
-I gatekeep Trish Una [JJBA] 
+I gatekeep Trish Una [JJBA], dni if you think you love her more than me.
