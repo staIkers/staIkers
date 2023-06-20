@@ -17,5 +17,7 @@ Mental illness/disorder fakers (Psychosis, DID, etc.) <img src="https://kingcrim
 <p align="center">
 I call my kins 'me irl', if that is an issue for you, feel free not to talk to me. <img src="https://kingcrimson.crd.co/assets/images/gallery05/52bc330a.gif?v=c96189b9">
 <p align="center">
+<img src="https://kingcrimson.crd.co/assets/images/gallery01/17692795.gif?v=c96189b9"> I hide defaults for 24h/15m, if you're hidden by me, I saw you as a default at some point.
+<p align="center">
 <img src="https://media.discordapp.net/attachments/1088850204045885510/1109521061923524639/B2FAF3D0-2DCE-432A-9178-354BB824164E.png" width="420" >
 </p> 
