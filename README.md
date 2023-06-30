@@ -9,7 +9,7 @@
 <p align="center">
 If you thrive off making others miserable.  <img src="https://kingcrimson.crd.co/assets/images/gallery05/862430cb.gif?v=c96189b9">
 <p align="center">
-<img src="https://kingcrimson.crd.co/assets/images/gallery01/e45a6128.gif?v=c96189b9"> If you claim to have TT/TD/DNT or any other variant. 
+<img src="https://kingcrimson.crd.co/assets/images/gallery01/e45a6128.gif?v=c96189b9"> If you claim to have TT/TD or any other variant. 
 <p align="center">
 Mental illness/disorder fakers (Psychosis, DID, etc.) <img src="https://kingcrimson.crd.co/assets/images/gallery05/ae0189c3.gif?v=c96189b9">
 <p align="center">
