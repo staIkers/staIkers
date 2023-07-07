@@ -11,7 +11,7 @@ If you thrive off making others miserable.  <img src="https://kingcrimson.crd.co
 <p align="center">
 Mental illness/disorder fakers (Psychosis, DID, etc.) <img src="https://kingcrimson.crd.co/assets/images/gallery05/ae0189c3.gif?v=c96189b9">
 <p align="center">
-<img src="https://kingcrimson.crd.co/assets/images/gallery01/8f320a22.gif?v=c96189b9"> I gatekeep Trish Una [JJBA] & Muzan Kibutsuji [KNY], dni if you PDA/LoveMail either of them.
+<img src="https://kingcrimson.crd.co/assets/images/gallery01/8f320a22.gif?v=c96189b9"> I gatekeep Muzan Kibutsuji [KNY], dni if you PDA/LoveMail him.
 <p align="center">
 I call my kins 'me irl', if that is an issue for you, feel free not to talk to me. <img src="https://kingcrimson.crd.co/assets/images/gallery05/52bc330a.gif?v=c96189b9">
 <p align="center">
