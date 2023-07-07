@@ -19,4 +19,7 @@ I call my kins 'me irl', if that is an issue for you, feel free not to talk to m
 <p align="center">
 Do NOT copy or inspo my skins. Me and my friends will call you our for doing it. <img src="https://kingcrimson.crd.co/assets/images/gallery05/f4416d89.gif?v=ec2840be">
 <p align="center">
+<img src="https://kingcrimson.crd.co/assets/images/gallery16/8f500422.gif?v=ec2840be"> Other Kokushibo skins please dni, he is a major comfort and one of my highest kins. 
+it just makes me uncomfortable.
+<p align="center">
 </p> 
