@@ -17,7 +17,7 @@ I call my kins 'me irl', if that is an issue for you, feel free not to talk to m
 <p align="center">
 <img src="https://kingcrimson.crd.co/assets/images/gallery01/17692795.gif?v=c96189b9"> I hide defaults for 24h/15m, if you're hidden by me, I saw you as a default at some point.
 <p align="center">
-Do NOT copy or inspo my skins. Me and my friends will call you our for doing it. <img src="https://kingcrimson.crd.co/assets/images/gallery05/f4416d89.gif?v=ec2840be">
+Do NOT copy or inspo my skins. Me and my friends will call you out for doing it. <img src="https://kingcrimson.crd.co/assets/images/gallery05/f4416d89.gif?v=ec2840be">
 <p align="center">
 <img src="https://kingcrimson.crd.co/assets/images/gallery16/8f500422.gif?v=ec2840be"> Other Kokushibo skins please dni, he is a major comfort and one of my highest kins. 
 it just makes me uncomfortable.
