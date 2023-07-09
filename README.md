@@ -1,4 +1,5 @@
-
+<p align="center"> ❛  i know you’re aching to be   𝐒𝐀𝐕𝐄𝐃 . . . 
+ <p align="center"> . . . from all the   𝐁𝐔𝐋𝐋𝐒𝐇𝐈𝐓 and   𝐁 𝐀 𝐍 𝐀 𝐋 𝐈 𝐓 𝐘 !  ❜
 <p align="center">
 <img src="https://cdn.discordapp.com/attachments/1094016567735492678/1126737518239420506/IMG_7379.jpg" width="420">
 <h1 align="center"> <img src="https://kingcrimson.crd.co/assets/images/gallery05/be1209c9.gif?v=c96189b9"> Do NOT Interact / Before You Interact <img src="https://kingcrimson.crd.co/assets/images/gallery16/2884da48.gif?v=c96189b9"> </h1>
