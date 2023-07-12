@@ -21,4 +21,6 @@ Do NOT copy or inspo my skins. Me and my friends will call you out for doing it.
 <p align="center">
 <img src="https://kingcrimson.crd.co/assets/images/gallery16/8f500422.gif?v=ec2840be"> Other Kokushibo skins please dni, he is me irl (kin), and a major comfort. 
 <p align="center">
+I am weary of Enmu skins/kins, you are fine to interact, just do it with caution. <img src="https://kingcrimson.crd.co/assets/images/gallery05/cd2c7faf.gif?v=ec2840be">
+<p align="center">
 </p> 
