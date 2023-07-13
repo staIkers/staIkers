@@ -19,7 +19,7 @@ I call my kins 'me irl', if that is an issue for you, feel free not to talk to m
 <p align="center">
 Do NOT copy or inspo my skins. Me and my friends will call you out for doing it. <img src="https://kingcrimson.crd.co/assets/images/gallery05/f4416d89.gif?v=ec2840be">
 <p align="center">
-<img src="https://kingcrimson.crd.co/assets/images/gallery16/8f500422.gif?v=ec2840be"> Other Kokushibo skins please dni, he is me irl (kin), and a major comfort. 
+<img src="https://kingcrimson.crd.co/assets/images/gallery16/8f500422.gif?v=ec2840be"> Kokushibo skins please dni, I consider him to be me irl. Exceptions may vary.
 <p align="center">
 I am weary of Enmu skins/kins, you are fine to interact, just do it with caution. <img src="https://kingcrimson.crd.co/assets/images/gallery05/cd2c7faf.gif?v=ec2840be">
 <p align="center">
